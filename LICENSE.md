@@ -1,4 +1,4 @@
-# 
+# VIP TurboTax plugins para Mac OS | Leve TurboTax plugins para PC Windows. Com aprovações de vários níveis e conciliação bancária — otimizado para máximo desempenho em cada plataforma.
 
 
 
